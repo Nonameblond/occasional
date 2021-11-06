@@ -1,0 +1,2 @@
+# occasional
+Power satisfactory
